@@ -1,2 +1,0 @@
-# Hooplab
-Basketball
